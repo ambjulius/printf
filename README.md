@@ -1,1 +1,1 @@
-work between akonji and Julius
+work between Akoji and Julius
